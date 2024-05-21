@@ -1,9 +1,5 @@
 # Tommy Tales
 
-## choose your character
+## Title/front cover page
 
-[Tommy](https://dorsadanesh.github.io/SYN100Project/TOMMY1.html)
-
-or
-
-[Tammy](https://dorsadanesh.github.io/SYN100Project/TAMMY1.html)
+[Next](https://dorsadanesh.github.io/SYN100Project/pre-survey.html)
