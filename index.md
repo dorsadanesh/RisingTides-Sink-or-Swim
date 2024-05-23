@@ -1,5 +1,5 @@
-# Tommy Tales
+# Rising Tides
 
-## Title/front cover page
+## Sink or swim?
 
 [Next](https://dorsadanesh.github.io/SYN100Project/pre-survey.html)
