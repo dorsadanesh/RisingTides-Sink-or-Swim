@@ -36,5 +36,5 @@ Downstairs, breakfast was set up in the grand hall. The usual spread of fresh fr
 Tommy sighed. It was old news. The lowland area of Southside was always flooded. Tommy’s mother told him not to go there for good reason. 
 
 ## CHOICE: choose to keep watching or to scroll past
-[Keep Watching](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/Tommy2-1.html)
-[Scroll Past](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/Tommy2-2.html)
+[Keep Watching](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy2-1.html)
+[Scroll Past](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy2-2.html)
