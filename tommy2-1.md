@@ -23,4 +23,6 @@ Ivy’s face softened marginally as she looked at him. “You understand I only 
 
 “Good. Now be a good boy and do as Smithers says.” She patted him on the shoulder, briefly nodding in approval at the insignia on his blazer, before turning on her heel and exiting the dining room with purpose. 
 
+Having lost the battle with his mother once more, Tommy resigned to his fate. He got into his Mercedes G-Wagon, powered by the Smithers self-driving system, and headed to school. 
 
+[Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy3.html)
