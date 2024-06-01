@@ -1,4 +1,4 @@
-# Part 3: The Internship
+## Part 3: The Internship
 
 From there, brunch turned into lunch, which turned into sitting next to each other in class. Soon, Tommy and Tiana hanging out at school became a routine. Tommy partly wondered whether they were just sticking with each other out of necessity—a lack of options, so to speak—but even recognizing this fact did not stop Tommy from looking forward to going to school for the first time in… well, ever. 
 
