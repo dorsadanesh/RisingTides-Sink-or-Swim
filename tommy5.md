@@ -50,3 +50,4 @@ Tommy turned to Tiana, who seemed as though she’d seen a ghost.
 
 “Me neither,” Tommy said dryly. “Come on, I’ll show you how to log into the system.”
 
+[Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy6.html)
