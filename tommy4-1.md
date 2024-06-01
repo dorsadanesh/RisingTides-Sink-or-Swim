@@ -35,3 +35,5 @@ Just then, the brunch bell rang. As usual, Tommy quickly put his belongings away
  She was clearly anxious about her new school, a feeling that Tommy was well acquainted with.
 
 After a moment, Tommy relented. It couldn’t hurt to eat with her once. “I don’t. And it’s my first time here too, so I suppose we can find out what’s good together.”
+
+[Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy5.html)
