@@ -47,3 +47,35 @@ Class launched soon after that. Syllabi were instantaneously shared to everyone�
 “Alright, students. This semester, we will be piloting a very special program for our business classes thanks to the generosity of our local companies. You all will be interning in pairs at an assigned company for a whole month!” 
 
 Excited whispers broke out in class. Tiana’s heart jumped. Finally! It seemed like her joining this school was already coming to use. Success was on the horizon!
+
+“This will be a great experience for you all, but especially those of you who want to work in the world of business,” continued Mr. Ellsworth. “Your assigned companies will be posted online, and your internship starts next week. Best of luck!”
+
+Tiana looked over to Tommy enthusiastically. “I’ve never had an internship before!” exclaimed Tiana. Tommy looked strangely nonchalant about the situation, and only gave a slight smile in response before looking down at his top-of-the-line AirScreen Pro with a grimace. 
+
+“Looks like the company assignments are out.” 
+
+Tiana felt her heart beating with anxiety and anticipation. She scrolled down the page to find her name.
+
+Tiana Montgomery, Tommy Jones : Earthandsea Corporation
+
+“Oh my gosh!” exclaimed Tiana to herself. The Earthandsea Corporation was the largest chain of fisheries and hatcheries on this side of the planet, and one of the few Fortune 500 companies that were headed by women CEOs. It would be a great opportunity for Tiana to learn and advance her opportunities, but it wouldn’t be easy.
+
+As Tiana switched instantaneously between excitement, fear and impostor syndrome, she heard a quiet voice. 
+
+“Looks like we’ve both been assigned to the same company…” said Tommy. Absorbed in her own thoughts, Tiana hadn’t even noticed that Tommy was her internship partner. 
+
+“Oh, nice,” said Tiana. Strangely, it made Tiana feel better to know that she’d be working with Tommy. If anything, at least he wasn’t one of those kids who’d laughed at her. 
+
+Just then, the brunch bell rang. The whole class began to shuffle and quickly pack their belongings, walking out in groups of friends. Tiana sat frozen in her seat for a moment. Realistically, she would probably be having brunch and lunch alone, since she didn’t know anyone. 
+
+She looked over at her tablemate Tommy, who looked similarly hesitant. 
+
+“Do you know what food is good here?” asked Tommy, twiddling his thumbs. “Oh—unless you already have plans…” 
+
+Tiana found Tommy’s awkward efforts to make friends with her oddly heartwarming. 
+
+“I don’t. Do you?”
+
+Tommy shook his head. “I guess we can find out together.”
+
+[Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana4.html)
