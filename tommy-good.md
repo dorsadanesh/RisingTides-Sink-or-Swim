@@ -2,7 +2,7 @@ Tommy has completely changed the kind of person he is. His friendship with Tiana
 
 Tommy and his mom made it a weekly event that they would go volunteer in Southside together. Their relationship went from very short, substanceless conversations to actually spending time with each other and getting to know each other.  
 
-Tommy has also joined Justice for Southside with Tiana so they can together fight against the system that is disproportionately affecting communities like Southside. He is becoming the friend that Tiana always needed and vice versa. Their friendship is one where they push one another to be better. Both of them are becoming better humans and advocates for the environment.  
+Tommy has also joined Justice for Southside, the environmental group, with Tiana so they can together fight against the system that is disproportionately affecting communities like Southside. He is becoming the friend that Tiana always needed and vice versa. Their friendship is one where they push one another to be better. Both of them are becoming better humans and advocates for the environment.  
 
 Tommy learned to stand up for what is right even if it meant having to have a difficult conversation with his mom and witnessing the sad reality of some people’s lives. He was able to acknowledge the privilege he had and used that to do better.
 
