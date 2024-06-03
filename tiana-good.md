@@ -27,3 +27,5 @@ Tiana and Tommy continued to build their friendship and embarked on a journey of
 After everything Tiana learned on this journey, she began to realize that being from Southside was something to be proud of and embrace. Her family continually supported her through anything and she decided to return the sentiment. Her family began to truly support one another and built a strong bond that led to embracing Southside and helping their neighbors. 
 
 [Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/end.html)
+
+![tommy tales - protest](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/2ffa65c8-add1-4340-aa64-295a96ad2b86)
