@@ -17,3 +17,9 @@ But this time, he couldn’t – because of Tiana.
 He wondered whether Tiana’s home was a part of this wreckage, and whether she, too, had lost everything. This thought made him anxious. For the first time, he was able to conceptualize the human suffering of this situation. 
 
 He also began to feel guilt that his mother’s development would only cause further harm to an already vulnerable neighborhood. Yet, he didn’t know what he could do to help. He was just one boy. 
+
+## CHOICE: Go to Southside or don't go to Southside
+
+[Go to Southside](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy9-1.html)
+
+[Don't go to Southside](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy9-2.html)
