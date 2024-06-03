@@ -8,6 +8,9 @@ Collateral damage. To Earthandsea, this would just be a necessary loss for a gre
 
 Tiana wrenched her gaze away from the house and continued on. She’d hoped that walking around would help the churning in her gut, but if anything, it only got worse the closer she got to home. When she finally reached her house, her parents were waiting at the front step. Her mother ran down the steps and pulled Tiana into a tight hug before she could get a word out. 
 
+![tommy tales - the falling out tammy](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/1bff325a-4c14-4ce7-a651-87d8851a5a8c)
+
+
 “Welcome back,” her mother said, words muffled. She pulled back and smiled brightly at Tiana, looking her over. “Have you been eating well? Oh, you look so tired! I hope they don’t work you too hard. Here, give me your bag.” She slipped Tiana’s backpack off her shoulder and started back into the house. “Come on, I’ll make you your favorite for dinner.” 
 
 Tiana wordlessly followed her mother. Her father pulled her into another hug as they made their way inside. Somehow, the apartment felt smaller than Tiana remembered, though she’d only been away for about a month. The dining table took up most of the space by the entrance, and Tiana had to squeeze her way around. 
