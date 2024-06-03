@@ -71,3 +71,5 @@ After a few more moments of silence, she dismissed him from her office, looking 
 Indeed, change wasn’t always easy. But it was powerful once it was set into motion.
 
 [Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy-good.html)
+
+![tommy taleS - tommy's reckoning](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/b52bd5ec-da44-4cb6-9376-6a5ee44c9559)
