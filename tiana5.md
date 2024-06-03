@@ -53,3 +53,7 @@ But what could one measly person even do in a situation like this?
 [Do something](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana6-1.html) 
 
 [Don't do something](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana6-2.html)
+
+![tommy tales - the falling out 1](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/5df0726c-df46-47fb-83c4-d1b470ca59b0)
+
+![tommy tales - the falling out 2](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/e91ecebf-8375-4377-94a8-020b59bd1388)
