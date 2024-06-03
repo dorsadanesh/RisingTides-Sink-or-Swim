@@ -65,3 +65,5 @@ Hearing their words with Tommy by her side filled Tiana with a renewed sense of 
 [Organize](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana-good.html) 
 
 [Let it be](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana-bad.html)
+
+![tommy tales - joint investigation montage](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/80c54406-6966-4ba3-8286-8805b4f14d6e)
