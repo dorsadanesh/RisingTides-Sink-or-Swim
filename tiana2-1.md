@@ -47,3 +47,15 @@ It’s time, she thought to herself as she took a deep breath and walked into th
 The first day of school at Brighton was filled with excitement and fanfare. Around her, friends noisily reunited after long summers spent apart. Upperclassmen welcomed first-years with enthusiasm and taunts in equal parts. 
 
 At some point, she noticed a few other students that she’d seen during move-in last week—on-campus dwellers like herself. They had seemingly formed friend groups already, and tottered past in pairs and triplets. She wondered briefly when they’d had time to get to know each other, before realizing they likely already knew each other. Everyone at this school seemed to have prior connections with each other.
+
+After ten minutes of careful walking, she finally reached her homeroom. As she walked into the crowded classroom, Tiana looked around for an empty seat. Due to her extra long commute to school, she’d arrived right before the bell and most of the class was already full. 
+
+At last, she spotted an empty seat in the back of the room next to an aloof looking boy with spiky blonde hair. He seemed busy staring out the window until Tiana started to approach him. He met her gaze briefly, then seemed to look away with what seemed like panic. 
+
+She took her seat next to the boy, who stared right ahead but seemed to steal glances at Tiana occasionally. Tiana wondered whether she should introduce herself to him.
+
+## CHOICE: Introduce yourself or do not introduce yourself 
+
+[Introduce yourself](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana3-1.html) 
+
+[Don't introduce yourself](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana3-2.html)
