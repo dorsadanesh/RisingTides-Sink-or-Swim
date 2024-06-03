@@ -41,3 +41,5 @@ And if she joined, could she make a difference, too? Or was it all in vain?
 [Join and organize with them](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana9.html) 
 
 [Leave it alone](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana-bad.html)
+
+![tommy tales - tammy self discovery](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/23c05d64-37e1-4d59-aa9e-f578c8f6b1fb)
