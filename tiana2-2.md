@@ -52,3 +52,9 @@ She took her seat next to the boy, who stared right ahead but seemed to steal gl
 “And text us when you get there!” Tiana’s mother called as she ran down the street. Tiana simply waved her hand above her head, not looking back. 
 
 As she ran to the trolley stop, Tiana passed by a news van where a reporter was standing in front of a building that was hit particularly hard by the recent floods.
+
+## CHOICE: Introduce yourself or do not introduce yourself 
+
+[Introduce yourself](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana3-1.html) 
+
+[Don't introduce yourself](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana3-2.html)
