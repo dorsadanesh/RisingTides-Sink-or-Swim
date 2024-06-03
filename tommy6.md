@@ -57,3 +57,10 @@ Tommy found his voice. “You said you were from a small town across the country
 “What?” Tommy gawked. He hadn’t been expecting her to suggest something like that. He knew he’d messed up, but to actually go there was…a lot. He didn’t even watch the news of things that didn’t affect him, let alone go visit them in person. 
 
 “Well?” Tiana pushed. “What’ll it be?”
+
+## CHOICE: Join Tiana or do not join Tiana
+
+[Join Tiana](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy7-1.html)
+
+[Don't join Tiana](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy7-2.html)
+
