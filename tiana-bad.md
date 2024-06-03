@@ -14,3 +14,5 @@ Tiana wished she could say she had no regrets, but even that would be a lie. The
 She’d gotten everything that she could have ever wanted, but at what cost?
 
 [Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/end.html)
+
+![tommy tales - tammy bad ending](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/2ced0d6d-dfce-4f77-acc5-a1ca5b558b09)
