@@ -31,3 +31,6 @@ That was the last time Tommy saw her. In the following months, Earthandsea grew.
 The seat next to his in class remained empty. 
 
 [Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/end.html)
+
+![tommy tales - tommy potential redemption 1](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/b76c6902-5a8c-429a-8d67-ff345c904e1f)
+
