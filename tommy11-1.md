@@ -69,3 +69,5 @@ Ivy stared at him across the desk for what felt like a lifetime. Eventually, she
 After a few more moments of silence, she dismissed him from her office, looking troubled. Tommy was afraid that he hadn’t gotten through to her, but an hour later, she sent him a voice note requesting that they have dinner together. Hope rose in his chest.
 
 Indeed, change wasn’t always easy. But it was powerful once it was set into motion.
+
+[Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy-good.html)
