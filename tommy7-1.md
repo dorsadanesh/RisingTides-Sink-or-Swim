@@ -1,4 +1,4 @@
-## TOMMY AND TIANA JOINT INVESTIGATION
+## Part 5: TOMMY AND TIANA JOINT INVESTIGATION
 
 “I…” Tommy wasn’t too keen on going, but at the same time, Tiana was asking. She was the only thing making school and the internship bearable.
 
