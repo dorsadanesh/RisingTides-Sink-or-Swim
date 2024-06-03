@@ -21,3 +21,5 @@ The time had finally come for Tommy to use his one secret weapon that he had kep
 “Of course, sir,” said Smithers. 
 
 With that, the garage doors opened and Tommy headed off to Southside.
+
+[Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy10-1.html)
