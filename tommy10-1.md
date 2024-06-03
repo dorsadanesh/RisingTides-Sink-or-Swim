@@ -13,3 +13,5 @@ This was not life, this was survival.
 Tommy had never seen devastation of this scale, and it tugged at his heart like nothing else. 
 
 [Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy10-2.html)
+
+![tommy tales - tommy potential redemption 2](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/775b5b23-a027-4ee0-9f8a-5221b7966327)
