@@ -5,3 +5,9 @@ Long after he returned back to Northtown, Tommy would still think back on Tiana�
 And yet, how could he make change? Visiting Southside was easy. Fixing it was harder. He was just a student, and even worse, if he wanted to truly make a difference, it all went back to Earthandsea—and his mother. His mother, who he only saw for two more minutes than her colleagues. His mother, who he couldn’t even oppose on matters of breakfast. How was he supposed to challenge her whole life’s work? 
 
 Was it even worth putting his whole lifestyle into jeopardy to help some neighborhood he’d never even stepped foot in before today?
+
+## CHOICE: Confront mom or do not confront mom
+
+[Confront mom](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy11-1.html)
+
+[Don't confront mom](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy11-2.html)
