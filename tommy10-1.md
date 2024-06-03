@@ -12,3 +12,4 @@ This was not life, this was survival.
  
 Tommy had never seen devastation of this scale, and it tugged at his heart like nothing else. 
 
+[Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy10-2.html)
