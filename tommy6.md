@@ -64,3 +64,6 @@ Tommy found his voice. “You said you were from a small town across the country
 
 [Don't join Tiana](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy7-2.html)
 
+![tommy tales - the falling out 1](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/d0779f12-03e5-4006-aed1-067e340a975b)
+
+![tommy tales - the falling out 2](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/e369bd00-65a8-4480-8ebc-9b903160fec6)
