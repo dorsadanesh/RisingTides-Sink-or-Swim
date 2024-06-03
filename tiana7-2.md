@@ -73,3 +73,5 @@ Tiana faltered as she looked at her parents’ expectant faces.
 [Ignore guilt and go back to school](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana-bad.html) 
 
 [Stay in southside for a bit and look around](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana8.html)
+
+![tommy tales - tammy self discovery](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/9395f057-284f-4b6f-a771-8c483a14af47)
