@@ -29,3 +29,5 @@ Tommy gaped, opening and closing his mouth wordlessly. “I… I never wanted th
 That was the last time Tommy saw her. In the following months, Earthandsea grew. The fishery that was built in Southside greatly increased profits, just like the SOUTHSIDE_44-45 report had predicted. As a result, his daily five minute conversation with his mother turned into brief emails and memos sent through Smithers. The color drained out of his day to day life until he was back to the same monochromatic schedule as before, except now it felt unbearable. 
 
 The seat next to his in class remained empty. 
+
+[Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/end.html)
