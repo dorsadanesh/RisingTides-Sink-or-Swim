@@ -10,4 +10,4 @@ Was it even worth putting his whole lifestyle into jeopardy to help some neighbo
 
 [Confront mom](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy11-1.html)
 
-[Don't confront mom](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy11-2.html)
+[Don't confront mom](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tommy-bad.html)
