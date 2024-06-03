@@ -38,6 +38,6 @@ And if she joined, could she make a difference, too? Or was it all in vain?
 
 ## CHOICE: Join and organize with them or leave it alone, as one person she can’t help
 
-[Join and organize with them](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana-good.html) 
+[Join and organize with them](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana9-1.html) 
 
-[Leave it alone](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana-bad.html)
+[Leave it alone](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/tiana9-2.html)
