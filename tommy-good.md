@@ -9,3 +9,5 @@ Tommy learned to stand up for what is right even if it meant having to have a di
 As Tommy grows up, he continues to be an avid environmentalist and climate change activist. He joins advocacy groups like Justice for Southside, alongside Tiana and they grow up to be well known in their community for fighting against climate change and those who contribute to it. 
 
 [Next](https://dorsadanesh.github.io/RisingTides-Sink-or-Swim/end.html)
+
+![tommy tales - protest](https://github.com/dorsadanesh/RisingTides-Sink-or-Swim/assets/114564837/ca38e8d1-5ab7-44af-a29e-e29a9dd99cc5)
